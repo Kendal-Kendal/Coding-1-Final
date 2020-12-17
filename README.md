@@ -1,2 +1,3 @@
 # Coding-1-Final
  These are the starter files for F2020 Coding 1
+This site is for doll photography and selling and trading. We specialize in Bratz dolls and vintage dolls. we also buy dolls from people and buy from other trading companies. We take dolls as well as the boxes if in good condition. We also refurbish Dolls and wil fix any of yours if needed. We ship to and from North and South America. We want to bring our customers the ability to reconect to their childhoods and bring people nostalga. We also donate to churches and orphanages to give under privaleged kids the joy for playing with dolls and more.
